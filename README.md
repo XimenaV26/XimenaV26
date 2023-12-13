@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **ximena.velascogo@gmail.com**
 
-- ⚡ Fun fact **I have had an online bazaar for more than 4 years. I also organize events to support local businesses.**
+- ⚡ Fun fact **I own an online bazaar for more than 4 years.. I also organize events to support local businesses.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
